@@ -2,7 +2,7 @@
 
 ![Sprunksters](https://sprunksters.com/sprunksters.png "Sprunksters")
 
-👉👉 Click to play: [Sprunksters](https://sprunkiscrunkly.com/sprunki-infected/ "Sprunksters")
+👉👉 Click to play: [Sprunksters](https://sprunksters.com/ "Sprunksters")
 
 Sprunksters - your portal to musical mayhem! Sprunksters is an exciting fan-made mod for Incredibox that turns music creation into a wild adventure. It's where vibrant characters meet unexpected beats, creating a unique playground for music enthusiasts of all levels. At its core, Sprunksters features a cast of colorful characters, each bringing their own musical chaos to the mix. These expressive performers come with distinctive animations and sounds, making every composition a visual spectacle as much as an auditory experience.
 
